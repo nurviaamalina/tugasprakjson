@@ -3,6 +3,7 @@ Nama: Nurvi A'malina
 NIM : 362358302001
 Kelas: 2A TRPL
 
-![Screenshot (331)](https://github.com/user-attachments/assets/2606259e-f224-445d-951d-fd0896d8c9c7)
+![Screenshot (333)](https://github.com/user-attachments/assets/6a7898bd-3df4-440a-bb06-1ba0c1c2409c)
 
-![Screenshot (332)](https://github.com/user-attachments/assets/94a7bb6c-198f-4b84-9b31-6012fce9f45d)
+![Screenshot (334)](https://github.com/user-attachments/assets/a8847406-9c90-4f51-a94b-e96a5eaaf994)
+
